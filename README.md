@@ -5,6 +5,7 @@
 - 📫 How to reach me: johvneves@outlook.com
 - 😄 Pronouns: Krvd / Dvrk
 - ⚡ Fun fact: 1989 and Brave new world are fucking manuals
+- 👾 Hobbies: Psychological and gore horror movies / Games FPS, RPG ...
 
 <!---
 KrvdDvrk/KrvdDvrk is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
