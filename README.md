@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @KrvdDvrk
+- 👋 Hi, I’m @krvdvrk
 - 👀 I’m interested in CyberSec
 - 🌱 I’m currently learning everything i think is interesting
 - 💞️ I’m looking to collaborate on the new world order
